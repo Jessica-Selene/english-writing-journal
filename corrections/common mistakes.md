@@ -46,6 +46,25 @@ To wear someone out = dejar a alguien agotado.
 
 Example: The school day wore me out.
 
+-------|°+ THE MOON +°|------------
+01 · Vocabulary
+Look at / See / Watch
+- Look at: dirigir la mirada.
+- See: percibir con la vista.
+- Watch: observar durante un tiempo.
 
+
+02 · Grammar
+Used to + base verb
+
+Se utiliza para hablar de hábitos del pasado.
+
+I used to watch the stars with my father.
+
+
+03 · Astronomy vocabulary
+Waxing vs. Waning
+- Waxing: increasing illuminated portion.
+- Waning: decreasing illuminated portion.
 
    
