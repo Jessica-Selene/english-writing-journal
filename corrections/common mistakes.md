@@ -26,7 +26,25 @@ Specifically es un adverbio; necesitás el adjetivo specific para describir leve
 
 
 
+--------------> Day 001 ------------------------------------------------------------------------------------------------------
 
+01 · Grammar
+After DIDN'T, use the base form of the verb.
+- Incorrect: He didn't came.
+- Correct: He didn't come.
+
+
+02 · Vocabulary
+Irregular verbs: drink – drank – drunk.
+- Present: I drink.
+- Past: I drank.
+- Past participle: I have drunk.
+
+
+03 · Natural expressions
+To wear someone out = dejar a alguien agotado.
+
+Example: The school day wore me out.
 
 
 
