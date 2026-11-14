@@ -18,3 +18,18 @@ So, when I was home with my family, we watched a medical series called "Doctor H
 I feel better now, and the sound of the rain is very relaxing at night.
 
 That's enough for today's attempt. Good night!
+
+
+
+
+------------>  THE MOON     --------------------------------------------------------------------------------------------------
+
+The Moon is Earth's natural satellite. It orbits our planet.
+
+The way we see the Moon changes depending on its phase (waxing crescent, first quarter, full moon, etc.). It can also look different during a lunar eclipse, when it takes on a reddish color.
+
+Well… the Moon interests me because it, along with the planets and the night sky, has been part of my life since I was a child.
+
+I used to look at the sky whenever I had the opportunity, together with my father and the telescope we had received for Christmas when I was little. That was a very important moment in my life. Every time I looked at the night sky, I was hypnotized by it. I could stand there, watching it for hours…
+
+I often think about the possibility of being out there someday (not necessarily as an astronaut).
