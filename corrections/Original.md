@@ -16,3 +16,14 @@ Well... it interest me because the moon, the planets, the sky in the night was t
 the posibility with my father and the telescope we had since the chrismass of my chilhood. That was a very important moment in my life,
 every time i was hipnotized for the night sky, and I can stand there... watching them... for hours...
 I think in the possibility of being there (not necesarilly like a astronaut)
+
+
+
+
+------> Day 002
+
+ Today was a great day. Because I have the Wedding of my [tía], and we celebrate all day.
+In the morning we went to the civil regirst, then we took some pictures, and then we went to the [quinta] to take a breackfast and afeter, the lunch, at the same time we play with “metegol”, talked a lot, and listened music all the afternoon. Finally, we have a more private version of the evento, because my [tía], and my family, help the wife and husband in their home before they leave (for they Honey moon). 
+ I’m glad for them, and I’m really happy about this because is once time I saw my [tía] shining with her smile and doesn’t runing for work or afraid about the compromism… they grow up, and thats my happiness
+
+ 
