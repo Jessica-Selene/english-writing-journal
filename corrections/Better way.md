@@ -33,3 +33,24 @@ Well… the Moon interests me because it, along with the planets and the night s
 I used to look at the sky whenever I had the opportunity, together with my father and the telescope we had received for Christmas when I was little. That was a very important moment in my life. Every time I looked at the night sky, I was hypnotized by it. I could stand there, watching it for hours…
 
 I often think about the possibility of being out there someday (not necessarily as an astronaut).
+
+
+
+
+
+
+------> Day 002
+
+Today was a great day because it was my aunt's wedding, and we celebrated all day.
+
+In the morning, we went to the registry office. Then, we took some pictures, and after that, we went to a country house to have breakfast. Later, we had lunch. We also played foosball, talked a lot, and listened to music throughout the afternoon.
+
+Finally, we had a more private part of the celebration. My aunt and my family helped the newlyweds get things ready at their home before they left for their honeymoon.
+
+I'm happy for them, and I'm especially happy because this was one of the few times I've seen my aunt shining with a smile on her face, without rushing off to work or worrying about responsibilities.
+
+They've grown up, and seeing them so happy makes me happy too.
+
+
+
+
