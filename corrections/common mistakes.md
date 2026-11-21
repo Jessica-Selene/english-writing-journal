@@ -67,4 +67,45 @@ Waxing vs. Waning
 - Waxing: increasing illuminated portion.
 - Waning: decreasing illuminated portion.
 
-   
+
+
+
+
+
+
+
+--------> Day 002
+
+1. Have breakfast, have lunch, have dinner.
+
+En inglés no usamos normalmente take para estas comidas.
+- I had breakfast at 9.
+- We had lunch together.
+- They had dinner at home.
+2. Listen to + something.
+- I listened to music.
+- She listens to podcasts.
+- We listened to the rain.
+No olvides ese pequeño to.
+
+3. El pasado simple: verbos regulares e irregulares.
+
+Como estás contando algo que ya sucedió, la mayoría de tus verbos necesitan estar en pasado:
+- play → played
+- talk → talked
+- listen → listened
+- go → went
+- take → took
+- have → had
+- leave → left
+No necesitás memorizar todos de golpe. Lo importante es que empieces a reconocerlos mientras escribís.
+3. Algunas expresiones que te pueden servir
+Hay tres partes de tu texto en las que quiero detenerme porque expresaste ideas bastante interesantes.
+- "My aunt was shining with a smile on her face." Es una forma linda de describir a alguien que está radiante de felicidad.
+- "Without rushing off to work." Transmite muy bien esa idea de alguien que normalmente está apurada por sus obligaciones.
+- "They've grown up." Es una expresión sencilla, pero tiene bastante significado dependiendo del contexto.
+Y una expresión que podrías incorporar:
+
+To be carefree: estar despreocupado, libre de preocupaciones.
+
+Por ejemplo: She looked happy and carefree.
